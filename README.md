@@ -3,3 +3,4 @@ Mostrar ejemplos del proyecto proyectado jejejejej
 
 ## Mario jesús Hernández castellanos (estudiante)
 ## Docente Franklin Martinez Avila
+## Edgar Jaime Urbano Zambrano (Estudiante)
